@@ -1,1 +1,0 @@
-Moi pervii tekst
